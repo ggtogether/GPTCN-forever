@@ -1,2 +1,2 @@
-# GPTCN-forever
-GPTCN的永久网址2
+# 永久地址
+### http://qd.qljzxyz.com/#/
