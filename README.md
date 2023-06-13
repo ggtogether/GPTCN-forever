@@ -1,2 +1,2 @@
 # GPTCN-forever
-GPTCN的永久网址
+GPTCN的永久网址2
