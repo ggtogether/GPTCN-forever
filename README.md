@@ -1,2 +1,2 @@
-# 永久地址1
+# 永久地址
 ### http://qd.qljzxyz.com/#/
